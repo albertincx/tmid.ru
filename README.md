@@ -1,1 +1,1 @@
-# tmid.ru
+[For sale](https://t.me/tmidru)
